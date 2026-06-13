@@ -1,0 +1,19 @@
++++
+title = "Capítulo 115"
+weight = 116
+template = "chapter.html"
+
+[extra]
+part = "Tercer Libro de Pistis Sophia"
++++
+
+Y María contestó diciendo: "*Mi Señor, ¿en qué forma los bautismos perdonan los pecados?. He oído que tú dices*: «los servidores retributivos persiguen al alma siendo testigos de todos los pecados que ha cometido para condenarla en los juicios». *Así pues, Mi Señor, ¿los misterios del bautismo limpian los pecados que están en las manos de los servidores retributivos para que ellos los perdonen?. Dinos pues, mi Señor, la forma como perdonan los pecados, y más aún, deseamos saberlo con seguridad*".
+## De los servidores retributivos.
+Y el Salvador contestó diciéndole a María: "*Finamente has hablado. Los servidores realmente son los que dan testimonio de todos los pecados; ellos esperan en los juicios apoderarse de las almas y probar la culpabilidad de los pecadores que no han recibido misterios, y se quedan con ellos en el caos para siempre, castigándolos. Y los receptores retributivos no pueden propasarse del caos para alcanzar las órdenes que están por encima del caos y condenar a las almas que salen fuera de esas regiones. Así pues, no es lícito obligar a las almas que reciban misterios y conducirlas al caos a fin de que los servidores retributivos las condenen. Sin embargo los servidores retributivos condenan a las almas de los pecadores que no han recibido misterios y se quedan con ellas para siempre llevándolas fuera del caos. Por otra parte, no tienen poder para condenar a las almas que han recibido misterios porque no han surgido de sus regiones, e igualmente, si surgen de sus regiones, no podrán estorbarlas ni aún llevarlas al caos*".
+## Cómo el alma del pecador es sellada con sus pecados.
+"*Prestad atención que os diré la palabra en verdad de la forma en que el misterio del bautismo perdona los pecados. Así pues, si las almas pecan cuando están todavía en el mundo, los receptores retributivos vienen realmente y son testigos de todos los pecados que éstas han cometido, a no ser que en verdad ellas aparezcan de las regiones del caos, a fin de que puedan probar su culpabilidad en los juicios que están fuera del caos. Y el espíritu falso se convierte en testigo de todos los pecados que el alma ha cometido para poder condenarla en los juicios que están fuera del caos, y no sólo para poder dar testimonio de ellos, sino sellar los pecados y atarlos al alma para que los arcontes de los castigos de los pecadores puedan reconocerla como un alma pecadora y conozcan el número de pecados que ha cometido por medio de los sellos que el espíritu falso le ha afianzado y sea castigada de acuerdo al número de pecados que ha cometido. Esto lo hacen con todas las almas pecadoras*".
+## Cómo el bautismo purifica los pecados.
+"*Así pues, el que ha recibido los misterios de los bautismos, convierte el misterio en ellos en un fuego sabio, sumamente violento y grandioso, que desintegra los pecados y penetra en el alma secretamente y consume todos los pecados que el espíritu falso ha creado en él*".
+## La separación de las partes por el misterio del bautismo.
+"*Y cuando éste ha concluido de purificar los pecados que el espíritu falso ha creado en dicha alma, penetra en el cuerpo secretamente y da caza a todos los perseguidores y los separa en el lado de la parte del cuerpo. Porque éste acosa al espíritu falso y al destino y los separa de la fuerza y del alma y los coloca en el lado del cuerpo, de suerte que sea separado el espíritu falso y el destino y el cuerpo en una parte; el alma y la fuerza, por otro lado, la separa en otra parte. El misterio del bautismo, por el contrario, permanece en medio de los dos, separándolos constantemente uno del otro a fin de que se limpien y purifiquen y no sean manchados por la materia*".
+"*Así pues, María, ésta es la forma en que los misterios de los bautismos perdonan los pecados y todas las iniquidades*".

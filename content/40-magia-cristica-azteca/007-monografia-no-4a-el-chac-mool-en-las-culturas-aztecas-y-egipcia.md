@@ -1,0 +1,28 @@
++++
+title = "Monografía Nº 4A. El Chac-mool en las Culturas Aztecas y Egipcia"
+weight = 7
+template = "chapter.html"
++++
+
+En el museo de Antropología e Historia de la ciudad de México D. F., existe la figura de un hombre en piedra semi-acostado en decúbito dorsal. Las plantas de sus pies se posan en su lecho, las rodillas en alto, las piernas medio flexionadas contra los muslos, el torso arqueado en actitud de primer impulso para levantarse, con la cara hacia la izquierda y la mirada en el horizonte; y en sus manos un recipiente a la altura del plexo solar. (Obsérvese el grabado adjunto.)
+{{ book_image(path="books/40-magia-cristica-azteca/10000000000007B500000515B1FFDB16.webp", alt="Ilustración") }}
+
+Este hombre en piedra es conocido por los arqueólogos con el nombre de Chac-Mool y es uno de los pocos símbolos del panteón azteca que se salvaron de la destrucción de la conquista.
+Fue tallado por los místicos aztecas, mayas, tarascos, etc., para perpetuar la sabiduría que ellos recibieron como herencia secreta de sus antepasados.
+El nombre de esta escultura azteca es **FARAÓN**: nombre cuyas sílabas se descomponen así: **FA-RA-ON**, y que debidamente vocalizadas son un Mantram que hace que el cuerpo astral de quien las pronuncie se separe del físico y el hombre flote en el espacio hacia la gran pirámide de Gizeh en Egipto.
+No es peligroso salir en cuerpo astral. Durante el sueño todos los seres humanos andamos en los mundos internos con la conciencia dormida. Toda alma abandona su cuerpo físico durante el sueño, entonces el cuerpo etérico tiene la oportunidad de reparar al cuerpo físico, cuando el alma regresa al cuerpo físico despertamos del sueño normal.
+En los mundos internos las almas se ocupan en los mismos menesteres cotidianos que desempeñan en la Tierra durante la vigilia; compran, venden, trabajan en la oficina, en el taller, en la fábrica, en el campo, etc. Las almas encarnadas y desencarnadas conviven durante el sueño. En los mundos internos todo es igual: el Sol, las nubes, las ciudades, las cosas. Le bastará concurrir a una sesión espiritista para darse cuenta de que los muertos no aceptan que están muertos y comprenderá por qué las almas de los vivos aman, sufren, luchan, trabajan durante el sueño. El los mundos internos tenemos que aprender a conservar la lucidez de la conciencia durante el sueño.
+Para esto recomendamos que cada vez que se encuentre con personas, acontecimientos o cosas raras que llamen su atención, discierna y se pregunte: "**¿Estoy en cuerpo físico o en astral?**". Dé un saltito para ver si puede flotar; si llegara a flotar, anda en cuerpo astral; si no flota, está en cuerpo físico. En los mundos internos actuamos como si estuviéramos en carne y hueso, como si estuviéramos despiertos. No hay diferencia entre estos dos mundos, entre el físico y el astral. (Lea "Los mil y un fantasmas" de Alejandro Dumas).
+Lo que habitualmente hacemos en estado de vigilia lo hacemos también durante el sueño. Si durante el día practica usted la clave de dar un saltito para cerciorarse en qué cuerpo anda, cuando con propósito de salir en cuerpo astral salte usted de su lecho por las noches quedará flotando en el espacio, y su cuerpo físico permanecerá dormido mientras usted viaja a través del infinito para asistir a los bellos rituales y cátedras que imparten los grandes Maestros en los templos gnósticos que existen en estado de Jinas en varias partes de este país y en todo el mundo.
+Indiscutiblemente las secretas enseñanzas Náhuas son comunes a todos los pueblos de la más remota antigüedad. Entre las leyendas húngaras se habla del "pueblo del monolito" cuyos indescifrables caracteres se parecen a los que existen en una gigantesca roca perdida en un lejano valle de Yucatán, México.
+No olvide la clave: Aprovechar el estado de somnolencia entre la vigilia y el sueño para que, por medio de su voluntad, se desdoble en cuerpo astral, discernimiento y memoria. Con este triángulo conocerá por usted mismo los grandes misterios de la vida y de la muerte.
+Para interpretar sus sueños lea el libro de Daniel en la Biblia.
+## PRÁCTICA
+Párese en posición de firmes con la vista hacia el Este, levante los brazos sobre su cabeza hasta juntar las palmas de las manos, baje los brazos extendidos y forme una cruz con ellos y su cuerpo; después, crúcelos sobre su pecho y acuéstese en decúbito dorsal, y cuando se vaya quedando dormido pida en oración sincera a Dios y a los Maestros que lo lleven a la gran pirámide de Gizeh en Egipto. Inmediatamente que termine su oración vocalice las siguientes sílabas:
+FAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA
+RAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA
+ONNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNN
+El sonido de estas sílabas, con ligeras variantes en cada una de ellas, corresponde al "FA" natural de la escala musical que resuena en toda la naturaleza. La sílaba "**RA**" se vocaliza en los rituales ejgipicios. La sílaba "**ON**", cambiándole la "N" por la "M" la vocalizaban antes y despues de sus meditaciones los Yoguis. Todas las mañanas, a la salida del Sol, con la cara al Este, haga prácticas de vocalización con todas las sílabas que se han dado en este curso, comenzando con la primera sílaba, y así hasta terminar, en mañanas sucesivas, con las tres últimas de esta monografía.
+Si usted practica fielmente por orden cada uno de los ejercicios que le hemos dado, por lo menos durante seis días consecutivos, pronto saldrá en cuerpo astral. Entendemos que es usted persona normal, que no abusa de licores ni del tabaco, que no propaga chismes, que no gusta de hacer chascarrillos a costa de sus semejantes, que ama y respeta a todo ser viviente.
+Recuerde que: "Dios por darle todo al bueno le ofrece hasta la cabeza del malvado".
+El Maestro.

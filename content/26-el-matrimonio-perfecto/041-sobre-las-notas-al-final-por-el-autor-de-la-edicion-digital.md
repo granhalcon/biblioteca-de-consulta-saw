@@ -1,0 +1,7 @@
++++
+title = "Sobre las Notas al Final (por el autor de la edición digital)"
+weight = 41
+template = "chapter.html"
++++
+
+No está de más aclarar la procedencia y el motivo de las notas de revisión en este libro. Las notas proceden del autor del sitio web **www.gnosis2002.com** y son hechas en el momento de la revisión (de agosto de 2012 a julio de 2013). Como esta revisión pretende ser una mera versión digital del libro original de la tercera edición de EL MATRIMONIO PERFECTO (única edición de este texto, ya que para la cuarta edición mucho debió omitirse o cambiarse debido a errores tanto de impresión como de concepto), se hacía necesario señalar y corregir cada error para que esta edición fuera útil al estudio tanto como lo es la cuarta y siguientes -sobre todo al querer incluir en esta tercera edición el escaso texto nuevo que aparece en la cuarta-. Siempre es peligroso anotar un libro del maestro, porque cualquier interferencia del yo del autor de las notas lo desconecta de la realidad que las inspira en la misma medida que el yo del lector falsea las conclusiones del que estudia esta obra. Así nos explicamos que tan pocos la entiendan. El autor de las notas las ha hecho tratando tanto de ayudar al que estudia como de evitarle la estupidez del que procura ayudar, pero incluso sin escatimar en cuidados de todo tipo es seguro que haya cometido algún error, por lo que ruega la comprensión del lector. PAZ INVERENCIAL.

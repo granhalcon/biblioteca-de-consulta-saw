@@ -1,0 +1,38 @@
++++
+title = "Capítulo Octavo. El Reino Mineral Sumergido"
+weight = 9
+template = "chapter.html"
++++
+
+El RAYO DE LA CREACIÓN comienza en el ABSOLUTO y termina en el INFIERNO. Esta palabra viene del Latín Infiernus que significa lugar inferior.
+Alguien cuyo nombre no menciono, dijo que el lugar Inferior era este mundo físico, este mundo CELULAR en que vivimos, pero ese autor se equivocó lamentablemente porque el Infiernus es el Sub-mundo, el REINO MINERAL SUMERGIDO.
+Dante descubre al Infierno dentro del interior de la tierra, el Sub-mundo dentro de la tierra.
+El descenso hacia el interior profundo de nuestro organismo planetario es un descenso a lugares de mayor densidad, de mayor materialidad. Esta es en verdad la sabia idea expresada por DANTE en su DIVINA COMEDIA.
+Dante ve el Sub-mundo, lo analiza, lo comprende, lo describe formidablemente. Dante habla de esferas o círculos de densidad creciente que conducían según sus mismas palabras: "HACIA EL MEDIO, EN CUYO PUNTO ÚNENSE TODAS LAS SUSTANCIAS PESADAS... ESE PUNTO, AL CUAL DE TODAS PARTES ES ARRASTRADA TODA SUSTANCIA PESADA"
+Dante vio en el dintel de una puerta del infierno escritas con caracteres negros estos terribles palabra; "POR MI SE VA A LA CIUDAD DEL LLANTO; POR MI SE VA AL ETERNO DOLOR; POR MI SE VA HACIA LA RAZA CONDENADA; LA JUSTICIA ANIMÓ A MI SUBLIME ARQUITECTO; ME HIZO LA DIVINA POTESTAD, LA SUPREMA SABIDURÍA Y EL SUPREMO AMOR. ANTES QUE YO NO HUBO NADA CREADO, A EXCEPCIÓN DE LO INMORTAL, Y YO DURO ETERNAMENTE. ¡OH VOSOTROS LOS QUE ENTRÁIS, ABANDONAD TODA ESPERANZA!"
+Las capas subterráneas de la tierra representan al Reino de los Minerales (LA LITOSFERA) El Reino de los Metales es la BARISFERA que envuelve un corazón de increíble densidad y espantosa inercia.
+Debemos hacer clara distinción entre el Reino de los MINERALES y el Reino de los METALES.
+El grupo de los Metales es un grupo cósmico separado entre los Minerales, un poco mas allá del Reino de los Metales, tras de ese reino maravilloso existe cierto tipo de materia muy rara que viene a tomar contacto con el Absoluto.
+Tras del Reino de los Metales está el Santo Fuerte y esto es algo que debemos comprender profundamente.
+El RAYO DE LA CREACIÓN comienza en el Absoluto y termina en el Infierno; ¿pero qué hay mas allá del INFIERNO? Es cierto y claro que más allá del Infierno, tras él REINO DE LOS METALES se encuentra el ABSOLUTO.
+La música aclara todo esto. El RAYO de la creación como todo proceso completo de la vida, es una Octava descendente en la que DO pasa a SI, SI pasa a LA, etc.
+En el Absoluto con su Única Ley vibra el Do de la escala musical. En todos los Mundos del Infinito con sus tres Leyes, resuena el SI de la Gran Escala. En todos los Soles con sus Seis Leyes, vibra la nota LA. En el Sol que nos ilumina con sus Doce Leyes, resuena la nota SOL. Todos los planetas de Nuestro Sistema Solar vibran con sus veinticuatro Leyes con ese FA que resuena en toda la naturaleza. La tierra con sus cuarenta y ocho Leyes vibra con la nota Mi. La Sub-tierra, es decir el Sub-mundo, vibra con la nota RE. El Rayo de la creación Termina en el Sub-mundo, más allá del Reino de los Metales está el Absoluto con su nota DO vibrando eternamente.
+El infierno con sus 96 LEYES y su nota RE, es pues el fin del RAYO de la CREACIÓN.
+Existen pues siete órdenes de MUNDOS en el RAYO de la CREACIÓN siendo el INFIERNO EL SÉPTIMO, el último.
+A menor número de LEYES mayor es la Felicidad y la ESPIRITUALIDAD, a mayor número de Leyes mayor es la complicación de la vida, la mecanicidad, la materialidad, el dolor.
+El Infierno gobernado por NOVENTA Y SEIS LEYES que se multiplican de acuerdo con la LEY DEL TRES, es espantosamente materialista, horrible, doloroso.
+El Reino MINERAL SUMERGIDO es el Infierno de Dante con sus nueve círculos o regiones, siendo el último aquel donde se encuentra el NÚCLEO de la tierra, lugar este donde el buen Discípulo de Virgilio encuentra el asiento de DÍTE el Demonio de la TRAICIÓN.
+Realmente el MUNDO es triple; existe el MUNDO, el SUB-MUNDO y el SUPRAMUNDO. La epidermis de la tierra, la región CELULAR en que vivimos es tan sólo la zona intermedia; bajo la corteza terrestre existe el SUB-MUNDO, el Averno Romano, el Tártarus Griego, el Ades, Helia, el Infierno de Dante, los MUNDOS INFIERNOS.
+Por encima de las regiones celulares se hallan los campos ELÍSEOS del SUPRAMUNDO, los Reinos MOLECULARES Y ELECTRÓNICOS, los cielos, DEVACHAN, AMENTI, PARAÍSO, etc.
+Tal es el hermoso Simbolismo PITAGÓRICO de los DOS CÍRCULOS SECANTES; el de arriba o SUPRAMUNDO y el de abajo o SUBMUNDO, dando lugar en su zona de intersección a una tercera región que es el MUNDO CELULAR en que vivimos.
+El Sol, como gigantesco CORAZÓN CÓSMICO de nuestro Sistema Solar, ilumina no sólo la REGIÓN CELULAR en que vivimos, sino también el SUBMUNDO y el SUPRAMUNDO.
+EL ASTRO REY no sólo emite esas ondas luminosas que percibimos con nuestros ojos físicos, sino millones de otras ondas de diferente tonalidad vibratoria que resulta de hecho, EFECTIVA LUZ NEGRA que los ojos humanos no alcanzan a percibir.
+Los finos aparatos de laboratorio nos informan que por encima del color VIOLETA, existen siete colores ULTRAVIOLETAS, cuyas RAYAS obscuras ESPECTRALES son claramente perceptibles por la FOTOESPECTOGRAFIA y de ellas para arriba existen sin duda alguna, multitud de VIBRACIONES QUÍMICAS y hasta HIPERQUIMICAS, como las de nuestra IMAGINACIÓN, como las de nuestra MENTE, VOLUNTAD y SENTIMIENTOS.
+Por otra parte, los científicos saben muy bien que del rojo para abajo, el Sol lanza ondas caloríficas de los RAYOS X, ELECTROMAGNÉTICAS, etc., que fuera de toda duda serian de hecho, LUZ PLENA si los seres humanos tuvieran desarrollado ese TERCER OJO de los LACÉRTIDOS citados por HOMERO en la ODISEA.
+Las criaturas que habitan en el fondo profundo de los mares y en las cavernas obscuras de la tierra tienen desarrollado ese tercer OJO, ese SEXTO SENTIDO.
+Se ha podido verificar ampliamente que las hormigas y otros insectos pueden ver muy bien con los RAYOS INFRARROJOS y que en cambio se encuentran en plena OSCURIDAD con los rayos de color VIOLETA.
+Esas TINIEBLAS EXTERIORES mencionadas por los CUATRO EVANGELIOS, del CRISTO, son realmente LUZ NEGRA, otro MODO de la LUZ; no es pues exagerado afirmar que los MUNDOS-INFIERNOS están iluminados por rayos INFRARROJOS.
+No es indispensable ser ABSOLUTAMENTE PERVERSO para ingresar a los Mundos-Infiernos; al Sub-Mundo ingresan también aquellos que vivieron sin merecer alabanzas ni vituperios de sus semejantes, aquellos que jamás fueron REBELDES ni FIELES a DIOS, los tibios que son tan numerosos como las arenas del mar, esos infelices que sólo vivieron para sí mismos, esas muchedumbres que jamás se interesaron por la AUTO-REALIZACIÓN ÍNTIMA del SER.
+Al Sub-Mundo ingresan las multitudes que caminan tras la bandera de ESAÚ, los ruines, esos que han cambiado sus derechos de PRIMOGENITURA por un plato de LENTEJAS, esos que dicen: Primero voy a conseguir dinero y después si me queda tiempo buscaré a Dios.
+A los MUNDOS-INFIERNOS entran los lujuriosos y los que odian al sexo, los HOMO-SEXUALES y los ABSTEMIOS IGNORANTES que no llegaron al Nacimiento Segundo; el cielo reprueba la USURA, LA INCONTINENCIA, LA MALICIA Y LA LOCA BESTIALIDAD.
+La INVOLUCIÓN en los Mundos-Infiernos pasando por estados animales y pseudo-vegetales, termina en el Reino Mineral con el epilogo fatal de la MUERTE SEGUNDA. Así, y sólo así, pueden las ALMAS FRACASADAS liberarse, regresar al caos primitivo para REINICIAR más tarde un nuevo ascenso EVOLUTIVO hacia el estado humano, pasando nuevamente por los REINOS mineral, vegetal y animal.

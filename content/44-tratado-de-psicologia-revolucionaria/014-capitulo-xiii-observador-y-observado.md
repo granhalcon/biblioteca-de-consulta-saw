@@ -1,0 +1,23 @@
++++
+title = "Capítulo XIII. Observador y Observado"
+weight = 14
+template = "chapter.html"
++++
+
+Es muy claro y no resulta difícil comprender, que cuando alguien empieza a observarse a sí mismo seriamente desde el punto de vista que no es Uno sino Muchos, comienza realmente a trabajar sobre todo eso que carga dentro.
+Es óbice, obstáculo, tropiezo, para el trabajo de Auto-observación Íntima, los siguientes defectos Psicológicos: Mitomanía, (Delirio de Grandeza, creerse un Dios). Egolatría, (Creencia en un YO Permanente; adoración a cualquier especie de Alter-Ego). Paranoia, (Sabiondez, Auto-suficiencia, engreimiento, creerse infalible, orgullo místico, persona que no sabe ver el punto de vista ajeno).
+Cuando se continúa con la convicción absurda que se es Uno, que se posee un Yo permanente, resulta algo mas que imposible el trabajo serio sobre sí mismo.
+Quien siempre se cree Uno, nunca será capaz de separarse de sus propios elementos indeseables. Considerará a cada pensamiento, sentimiento, deseo, emoción, pasión, afecto, etc., etc., etc., como funcionalismos diferentes, inmodificables, de su propia naturaleza y hasta se justificará ante los demás diciendo que tales o cuales defectos personales son de carácter hereditario...
+Quien acepta la Doctrina de los Muchos Yoes, comprende a base de observación que cada deseo, pensamiento, acción, pasión, etc., corresponde a este u otro Yo distinto, diferente...
+Cualquier atleta de la Auto-Observación íntima, trabaja muy seriamente dentro de sí mismo y se esfuerza por apartar de su Psiquis los diversos elementos indeseables que carga dentro...
+Si uno de verdad y muy sinceramente comienza a observarse internamente, resulta dividiéndose en dos: Observador y Observado.
+Si tal división no se produjera, es evidente que nunca daríamos un paso adelante en la Vía maravillosa del Auto-Conocimiento.
+¿Cómo podríamos observarnos a sí mismos si cometemos el error de no querer dividirnos entre Observador y Observado?
+Si tal división no se produjera, es obvio que nunca daríamos un paso adelante en el camino del Auto-Conocimiento.
+Indubitablemente cuando esta división no se sucede continuamos identificados con todos los procesos del Yo Pluralizado...
+Quien se identifica con los diversos procesos del Yo Pluralizado, es siempre victima de las circunstancias.
+¿Cómo podría modificar circunstancias aquel que no se conoce a sí mismo? ¿Cómo podría conocerse a sí mismo quien nunca se ha observado internamente? ¿De qué manera podría alguien auto-observarse si no se divide previamente en Observador y Observado?
+Ahora bien, nadie puede empezar a cambiar radicalmente en tanto no sea capaz de decir: "*Este deseo es un Yo animal que debo eliminar*"; "*este pensamiento egoísta es otro Yo que me atormenta y que necesito desintegrar*"; "*este sentimiento que hiere mi corazón es un Yo intruso que necesito reducir a polvareda cósmica*"; etc., etc., etc.
+Naturalmente esto es imposible para quien nunca se ha dividido entre Observador y Observado.
+Quien toma todos sus procesos Psicológicos como funcionalismos de un Yo Único, Individual y Permanente, se encuentra tan identificado con todos sus errores, los tiene tan unidos a sí mismo, que ha perdido por tal motivo la capacidad para separarlos de su Psiquis.
+Obviamente personas así jamás pueden cambiar radicalmente, son gentes condenadas al más rotundo fracaso.

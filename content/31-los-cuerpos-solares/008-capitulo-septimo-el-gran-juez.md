@@ -1,0 +1,39 @@
++++
+title = "Capítulo Séptimo. El Gran Juez"
+weight = 8
+template = "chapter.html"
++++
+
+Los sabios INDOSTANES citan en todos sus libros sagrados a la PRAKRITI, esa SUSTANCIA PRIMORDIAL de donde devienen por sucesivas condensaciones o cristalizaciones los DOCE HIDRÓGENOS BÁSICOS FUNDAMENTALES que sirven de cimientos a los SIETE COSMOS.
+La Variedad en el fondo es UNIDAD, TATWAS, SENTIDOS, MENTE, y toda esa multiplicidad de seres y de cosas, resultan siendo diversos modos de cristalización de la SUSTANCIA PRIMORDIAL.
+El fuego que flamea, el aire sin el cual ninguna criatura puede existir, las aguas del borrascoso mar y la perfumada tierra son AKASHA condensado, MULAPRAKRITI Materializado, PRAKRITI densificado.
+La MADRE-ESPACIO es pues la SUSTANCIA PRIMORDIAL, la MATERIA PRIMORDIAL de la GRAN OBRA.
+El ESPACIO como MADRE es el seno fecundo de donde todo sale y a donde todo vuelve.
+Quede aclarado definitivamente en este capítulo que el ESPACIO MADRE es la misma PRAKRITI de los Indostanes, la MADRE DIVINA.
+Durante el PRALAYA (NOCHE CÓSMICA) la PRAKRITI es UNA, ÚNICA, INDIVISIBLE, INTEGRA.
+Durante el MAHAMVANTARA (DÍA CÓSMICO), como resultado de la actividad del Primero, Segundo y Tercer Logos, la PRAKRITI se desdobla a sí misma asumiendo entonces TRES ASPECTOS.
+Los Tres MODOS DE LA PRAKRITI son: Primero la PRAKRITI INMANIFESTADA; Segundo: la PRAKRITI EN LA NATURALEZA; Tercero: la PRAKRITI como REINA DE LOS INFIERNOS Y LA MUERTE.
+La Inmanifestada Prakriti no tiene simbolismo entre los Aztecas. La MANIFESTADA PRAKRITI tiene el simbolismo Azteca de TONANTZIN, la MADRE ADORABLE. Los Griegos simbolizaron a este segundo aspecto de la MADRE CÓSMICA por la CASTA DIANA.
+EL TERCER ASPECTO DE LA MADRE DIVINA es entre los Aztecas la Terrible COATLICUE, es la PROSERPINA EGIPCIA, la tremenda HÉCATE señora de los encantamientos y de la MUERTE entre los Griegos.
+La MADRE-ESPACIO en si misma es la APIA ROMANA, la URWALA NÓRDICA, la ERDA ESCANDINAVA, la URGANDA CABALLERESCA, la SIBILA PRIMITIVA de la tierra.
+Cualquiera de los Tres Aspectos de la PRAKRITI puede si así lo quiere, revestirse de una forma femenina para comunicar algo a cualquier Místico ILUMINADO.
+Una noche cualquiera de verano hallábame en ese estado conocido en el Mundo Oriental como NIRVI-KALPA o SHAMADI; la meditación fue muy profunda, y lo que me sucedió fue algo maravilloso.
+El TERCER ASPECTO DE LA PRAKRITI asumió ante mí la espantosa figura terriblemente Divina de PROSERPINA O HÉCATE, como la llaman los griegos y luego habló en un lenguaje de sabor APOCALÍPTICO:
+"Esta perversa civilización de víboras, esta GRAN BABILONIA será destruida y de todos sus pueblos no quedará piedra sobre piedra. El mal del mundo es tan grande, que ya llegó al cielo. Esta humanidad ya está totalmente perdida, no tiene remedio".
+Entonces lleno yo de GRAN TEMOR dije: ¡oh! MADRE MÍA, estamos ante un callejón sin salida. PROSERPINA tomó su parábola y me dijo ¿quieres hacer conmigo un negocio? Si MADRE MÍA, estoy dispuesto a ese negocio, fue mi respuesta, y ésta salió de mis labios con gran firmeza, PROSERPINA LA REINA DE LOS INFIERNOS Y LA MUERTE tomó nuevamente su Parábola y dijo: "Tú abres el callejón sin salida y yo los mato". Acepto MADRE MÍA, SEÑORA MÍA, contesté de inmediato.
+Pasaron luego ante nosotros ciertas DAMAS DE ALTO MUNDO; estas Damas lograran el NACIMIENTO SEGUNDO y de sus CUERPOS SOLARES emanaba esplendorosa la Luz Solar.
+Desafortunadamente estas DAMAS no habían disuelto el YO PLURALIZADO ni eliminado sus CUERPOS LUNARES, les saludé más no respondieron y llenas de orgullo, ni siquiera se inclinaron reverentes ante la MADRE DIVINA.
+Todavía tienen orgullo y es que llevan dentro de sí mismas los vestigios de la GRAN RAMERA cuyo número es 666; esto fue todo lo que se me ocurrió decir: "Voy a tener que examinar a todos estos", dijo la Madre Divina refiriéndose en forma evidente a los DOS VECES NACIDOS en esta época en que vivimos.
+Pasaron luego entre nosotros ciertos caballeros vestidos también con CUERPOS SOLARES, pero a diferencia de las Damas, estos si se inclinaron llenos de profunda veneración y respeto ante la Madre Divina y ante mi insignificante persona que nada vale. "Estos son HIJOS DEL SOL", exclamó la Madre Cósmica.
+Después de todo entré en un periodo de profunda reflexión. Si algunos DOS VECES NACIDOS deben todavía ser examinados rigurosamente, ¿qué suerte le puede aguardar a la GRAN RAMERA? ¿Cuál será el destino que le aguarda a la RAZA LUNAR?.
+Es obvio que todas las RELIGIONES CONFESIONALES aguardan el Juicio Final para esta humanidad, para esta Raza Lunar degenerada y perversa y según la Cronología y Geometría de la GRAN PIRÁMIDE DE EGIPTO éste ocurrió ya entre los anos 1946 y 1953.
+Los Gnósticos sabemos por ILUMINACIÓN y EXPERIENCIA TRASCENDENTAL DIRECTA que el juicio de las naciones ocurrió en el año 1950. Los Dioses santos juzgaron a la GRAN RAMERA y la consideraron indigna; la sentencia de los Dioses fue: ¡Al Abismo!, ¡Al Abismo!, ¡Al Abismo!.
+Resulta interesante que este periodo del JUICIO DE LAS NACIONES de acuerdo con las medidas de la Gran Pirámide de Egipto, viene a terminar en la enigmática CÁMARA SUBTERRÁNEA, una Cámara pétrea, obscura que no tiene salida para ninguna parte.
+Es obvio que con esto quisieron decirnos los Sabios constructores de la Gran Pirámide de Egipto, que después del juicio final, la humanidad entraría a los Mundos Infiernos, hallados por DANTE dentro del interior de la tierra.
+El APOCALIPSIS de San Juan hablando sobre el GRAN JUICIO dice: "y vi un gran trono blanco y al que estaba sentado en él, delante del cual huyeron la tierra y el cielo y ningún lugar se encontró para ellos. Y vi a los muertos grandes y pequeños, de pie ante Dios; y los libros fueron abiertos, y otro libro fue abierto, el cual es el Libro de La Vida, y fueron juzgados los muertos por las cosas que estaban escritas en los libros, según sus obras. Y la muerte y el HADES fueron lanzados al lago de fuego. Esta es la MUERTE SEGUNDA. Y el que no se halló (escrito) inscrito en el libro de la vida fue lanzado al lago del fuego".
+Todo el simbolismo de la Gran Pirámide de Egipto comienza pisando el GRAN PELDAÑO, de manera que se hace claro el iniciarse el primer pasaje bajo donde aparece la singular fecha 4.5 de agosto del año 1914. Este terrible simbolismo continúa hasta la entrada a la Cámara del Rey que marca con entera precisión la fecha 15.16 de septiembre de 1936.
+Estas dos terribles fechas de la primera y segunda guerra mundial asombran cuando se las encuentra uno en la Geometría y Cronología de la Gran Pirámide; lo curioso es que por estos pasajes escritos no es posible pasar de pie debido a la construcción o forma, y se hace entonces necesario usar las cuatro extremidades para andar como animales cuadrúpedos; esto nos recuerda a los soldados andando en cuatro patas o arrastrándose como un animal en los campos de batalla.
+Según la GRAN PIRÁMIDE, nuestra época actual tiene que pasar por los tres periodos de MUERTE, PREOCUPACIÓN, CAOS.
+"La abominación del asolamiento, que fue dicho por Daniel el Profeta, estará en el lugar Santo... habrá entonces grande aflicción, cual no fue desde el principio del mundo hasta ahora, ni será. Y si aquellos días no fuesen acortados, ninguna carne seria salva"...
+Desde la PRIMERA GUERRA MUNDIAL esta profecía se está cumpliendo en forma dramática. Las medidas Geométricas de la Gran Pirámide señalan la primera Guerra Mundial, el intervalo entre la primera y segunda Guerra; el año 1939 con la fecha 15-16 de septiembre como comienzo de la segunda Guerra Mundial, y el tiempo de duración de cada una de estas dos grandes Guerras.
+Por último la Gran PIRÁMIDE coloca a la humanidad frente al GRAN JUEZ en la SALA DE LOS JUICIOS DE LAS NACIONES. Termina la Cámara del Rey en la fecha 19.20 de agosto 1953. Lo que continúa ahora, pertenece al trabajo de PROSERPINA, ella acabará con toda la humanidad.

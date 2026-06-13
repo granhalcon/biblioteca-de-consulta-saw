@@ -1,0 +1,16 @@
++++
+title = "Capítulo 41. Los Registros Akáshicos"
+weight = 42
+template = "chapter.html"
++++
+
+Cualquier sistema lógico deductivo e inductivo nos invita a comprender que toda la historia de la Tierra y de sus razas no puede haberse perdido. Los sabios indostánicos nos hablan frecuentemente en sus obras sobre eso que bien podríamos denominar AKASHA, causa causarum del éter de la ciencia... La sustancia Akáshica es el mismo OKIDANOKH omnipresente y Omnipenetrante que llena todo el espacio infinito...
+Todas las concentraciones cósmicas del espacio infinito son el resultado matemático de las múltiples cristalizaciones del OKIDANOKH omnipresente. Escrito está en viejos documentos arcaicos que cuando los seres humanos poseían todavía lo que se llama la "VISIÓN OLOOESTESKHNIANA" (el Ojo abierto de Dangma), podían percibir correctamente todas las concentraciones cósmicas del espacio estrellado. Entonces los seres humanos sabían leer los archivos AKÁSHICOS de la naturaleza, por aquellos tiempos nadie ignoraba las memorias de la creación.
+Cuando los seres humanos abusaron del sexo, cuando comieron del árbol de la ciencia del bien y del mal, se degeneró progresivamente el órgano visual terrestre, convirtiéndose en lo que se llama un "KORITSNOKHNIANO" común y corriente con ojos que sólo ven el mundo tridimensional de EUCLIDES. Empero, es incuestionable que todavía existen sobre la faz de la tierra algunos MAHATMAS que pueden estudiar las memorias de la naturaleza entre los registros del OKIDANOKH omnipresente.
+Cualquier acontecimiento deja en el AKASHA su fotografía viviente; en esos misteriosos registros cósmicos, están todas nuestras vidas anteriores. En estos tiempos modernos la electrónica está avanzando maravillosamente y es ostensible que sólo nos falta ahora un dispositivo especial para captar las ondas vibradoras del pasado. Cuando tal dispositivo sea inventado, entonces podremos ver y oír en la pantalla televidente toda la historia de los incontables siglos. Así es como los registros AKÁSHICOS de la naturaleza caerán inexorablemente en manos de los científicos.
+Se nos ha dicho que el FBI de los Estados Unidos de Norte-América posee actualmente una cámara fotográfica muy especial mediante la cual puede registrar en placas muy sensibles, homicidios cometidos horas o días antes de ser denunciados ante las autoridades[^100].
+Se infiere de esto que si los agentes de la ley llegan al lugar de los hechos, pueden con tal cámara fotografiar el delito aunque este haya sido cometido horas o días antes. Tales cámaras tan revolucionarias trabajan con rayos infrarrojos y vacío absoluto.
+Se nos ha informado que el enfriamiento de sus finísimos lentes alcanza temperaturas de 15 a 20 grados bajo cero. Esto significa que ya los registros AKÁSHICOS de la naturaleza comienzan a caer en manos de los sabios modernos.
+Si ahora se sacan fotografías sobre sucesos pasados, un poco más tarde se podrán filmar películas de este tipo. Así es como en esta nueva edad de acuario, los hombres de ciencia tendrán que reconocer las afirmaciones esoterísticas y ocultistas.
+
+[^100]: Este fue el tema de la película: MINORITY REPORT (el protagonista es Tom Cruise). A veces las películas se basan el algo como en este caso.

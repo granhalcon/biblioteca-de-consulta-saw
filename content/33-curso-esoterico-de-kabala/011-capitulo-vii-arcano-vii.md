@@ -1,0 +1,46 @@
++++
+title = "Capítulo VII. Arcano VII"
+weight = 11
+template = "chapter.html"
++++
+
+{{ book_image(path="books/33-curso-esoterico-de-kabala/10000000000000B20000012C4C682A4F.webp", alt="Ilustración") }}
+
+Recordad que el número siete representa el Poder Mágico en toda su fuerza. El Santo Siete es el Santum Regnum de la Magia Sexual. El número Siete (VII) es el Intimo servido por todas las fuerzas elementales de la Naturaleza.
+Todo aquel que trabaja con el Arcano A.Z.F., recibe en el Arcano VII, la Espada Flamígera. En nombre de la Verdad, nosotros afirmamos que la Espada Flamígera de los Grandes Hierofantes, es puro Semen Transmutado.
+Ese es el resultado de la Magia Sexual. Así es como nos transformamos en Dioses Terriblemente Divinos.
+Los órganos sexuales son el legítimo Laboratorium Oratorium del Amphitheatrum Sapientiae Aeternae. Ese es el Sanctum Regnum donde el Hierofante recibe la Espada de la Justicia. En el jardín de placeres de la Alkimia encontramos esta palabra: "VITRIOL". Este es un Acróstico Derivado de la frase: "Visita Interiora Terrae Rectificatur Invenies Ocultum Lapidum" (Visita el Interior de Nuestra Tierra, que Rectificando Encontrarás la Piedra Oculta).
+Debemos buscar en el Interior de nuestra Tierra Filosófica (el organismo humano) que rectificando, trabajando con el Arcano A.Z.F., hallaremos la Piedra Filosofal. El SOL (Phalo) es el padre de la piedra. La LUNA (útero) es la Madre. El viento llevó al Hijo en su seno, y la tierra lo alimentó. El SOL y la LUNA, los principios masculinos y femeninos se combinan dentro del cáliz, (símbolo de la mente) El SOL, es el padre de la Piedra (fuego), la LUNA es la madre (agua) El viento (vapores seminales) llevó al Hijo en su seno Alkimista y la tierra filosófica lo alimentó.
+El Cáliz se apoya sobre el Caduceo de Mercurio (el sistema central, columna espinal) con los dos cordones simpáticos conocidos en Oriente con los nombres de IDÁ Y PINGALÁ.
+En la generación de la piedra filosofal actúan dos influencias; una de carácter masculino, otra de carácter femenino.
+Toda la obra se realiza con el Gran Arcano. La estrella de siete puntas es parte inseparable del VITRIOL acróstico. Las siete serpientes de la Alkimia se relacionan con los siete planetas y las siete grandes realizaciones cósmicas.
+El acróstico VITRIOL con sus siete letras y sus siete palabras simboliza toda la GRAN OBRA. Los misterios del Arcano VII son terriblemente divinos.
+Las siete puntas de la Gran Estrella de la Alkimia tienen las signaturas sagradas de los siete planetas. Las siete palabras del VITRIOL y el doble círculo de las fuerzas masculinas y femeninas rodean a la Gran Estrella Septenaria que resplandece como un Sol en el templo de la Ciencia.
+El Sol y la Luna, el Fuego y el Agua, el Rey y la Reina forman parte integral del trabajo de todo pichón alkimista.
+El pichón tiene que hacer siete grandes trabajos que culminan en la coronación de la Gran Obra.
+En el centro de la septenaria estrella de la Alkimia, aparece grabado el rostro de un venerable anciano según ilustración de *Viridarium Chymicum*.
+Ese rostro tan venerable de la septenaria estrella simboliza el mercurio sófico. (El Ens Seminis) Escuchad, pichones de la Alkimia, escuchad a Estolsio explicando este emblema:
+"*Aquello que antes estaba encerrado en muchas formas, lo ves ahora incluido en una sola. El comienzo es nuestro viejo y él tiene la llave; el azufre con sal y mercurio dan riqueza. Si no ves nada aquí, no hay razón para que sigas buscando; pues serás ciego, aún en medio de la LUZ*".
+Aquellos estudiantes de ocultismo que piensan realizarse a fondo sin el Arcano A.Z.F. están absolutamente equivocados. La gran Maestra Hermana Secreta, dice que los estudiantes que quieran conocer los misterios de Chiram (el fuego) deben buscar a los Alkimistas medievales. La gran Maestra fue una verdadera Yoguina discípula de Kout Humi y sin embargo después de haber enviudado del Conde Blavatsky se casó con el Coronel Olscott, para trabajar con el Arcano de la Magia Sexual. Sólo así logró realizarse a fondo.
+El gran Yogui–Avatara, señor Lahiri Lahasaya, fue llamado para la Iniciación por el Inmortal Babaji cuando tenía ya esposa. Así se realizó el Yogui–Avatara. En el Indostán la Magia Sexual es conocida con el término Sánscrito de Urdhvaratus y los Yoguis que la practican se denominan Urdhvaretas Yoghis.
+Los auténticos Yoguis practican Magia Sexual con sus esposas. El Bramacharya (abstención sexual absurda) para lo único que sirve es para ocasionar poluciones nocturnas asqueantes con todas sus nefastas consecuencias.
+El Hatha–Yoga es cuestión de maromas que tienen el poder de sacar al hombre de los mundos superiores para esclavizarlo del mundo físico. Jamás en la vida hemos conocido a un maromero Hatha-Yogui con poderes de iluminación interna.
+Existen tres rayos de Iluminación de Auto–Realización Intima: El Yogui, el Místico y el del Matrimonio Perfecto. Empero los tres rayos necesitan inevitablemente de la Magia Sexual. Todo lo que no sea por el sexo es perder el tiempo inútilmente. Nosotros salimos del Edem por la puerta del sexo. Sólo por esa puerta podemos entrar al Edem. El Edem es el mismo sexo.
+El Arcano VII del Tarot está representado por un guerrero coronado que lleva el triángulo sobre su corona y está parado sobre la piedra cúbica de Jesod (el sexo). Las dos esfinges Blanca y Negra que tiran su carro simbolizan las fuerzas masculinas y femeninas. La coraza es la ciencia divina que nos hace poderosos. El guerrero debe aprender a usar el Báculo y la Espada. Así logrará la gran Victoria. Nuestra divisa es Thelema (Voluntad) recordemos que existen siete vicios que debemos transmutar en Sabiduría y Amor. El Orgullo se transmuta en la Fe solar y en la Humildad del Cristo. La Avaricia lunar, se transforma en esperanza y altruismo. La Lujuria fatal de Venus se transmuta en la Castidad de Venus y en la Caridad del Espíritu. La Cólera de Marte, se transmuta en la Fuerza Maravillosa del Amor. La Pereza se transmuta en la actividad prudente de Mercurio. La Glotonería se transmuta en la templanza de Saturno. Sólo con la Ciencia de las transmutaciones podemos desintegrar los defectos y disolver el YO PSICOLÓGICO. Trabajad con el Arcano A.Z.F. para que recibáis la Espada.
+Los Gobernadores de los Siete Planetas son: Gabriel, Raphael, Uriel, Michael, Samael, Zachariel, Orifiel.
+Las siete notas de la lira de Orfeo corresponden a los siete planetas. A cada color de Prisma Solar, le corresponde una nota planetaria. La Alkimia se halla íntimamente relacionada con la música. Atalanta es la Voz que huye; Hipómanes es la Voz que persigue y la Manzana es la Voz que demora.
+**I.A.O**. es el Mantram Supremo de la Magia Sexual. **I.A.O.,** es el nombre de la Serpiente. Bendito sea el **I.A.O**. El **I.A.O**. se debe cantar durante las experiencias en el Laboratorio. Así se mueve la Serpiente y se alegra. Cantad Siete Veces el **I.A.O**. en el Laboratorium – Oratorium.
+El Mantram **I.N.R.I**., tiene poder absoluto sobre el fuego: Cantadlo también en el Laboratorium Oratorium para llevar el fuego a cada uno de vuestros siete chacras. Cantadlo así:
+INRI ENRE ONRO UNRU ANRA.
+Se canta silabeándolo así:
+**Iiinnn rrriii **(Clarividencia)
+**Eeennn rrreee **(Clariaudiencia)
+**Ooonnn rrrooo **(Corazón – Intuición)
+**Uuunnn rrruuu **(Telepatía – Plexo Solar)
+**Aaannn rrraaa** (Chacras pulmonares – recordación de pasadas encarnaciones)
+El gran Hierofante Jesús el Cristo cantaba estos Mantrams en el Laboratorium – Oratorium de la Pirámide de Kefren.
+Los siete signos Kabalísticos de los planetas son: Para el Sol una serpiente con cabeza de León. Para la Luna un globo cortado por dos medias lunas. Para Marte un dragón mordiendo las guardas de una espada. Para Venus un Lingam Sexual. Para Mercurio un Caduceo y el cinocéfalo. Para Júpiter el Pentagrama flameante o el Pico del águila. Para Saturno un viejo cojuelo o una serpiente enlazada en la piedra hélieca. Los siete talismanes tienen el poder de atraer las siete fuerzas planetarias. El Oro es el metal del Sol. La Plata es el metal de la Luna. El Hierro es el metal de Marte. El Cobre es el metal de Venus. El Azogue es el metal de Mercurio. El Estaño es le metal de Júpiter. El Plomo es el metal de Saturno. Con las piedras y los metales se pueden preparar talismanes perfectos.
+El Padre Nuestro es la Oración más Perfecta porque tiene Siete Peticiones Mágicas.
+## PRACTICA
+**ASANA.** Acuéstese el estudiante en el suelo sobre una alfombra. Abra sus piernas y brazos a derecha e izquierda hasta quedar como una estrella de cinco puntas. Relaje todo su cuerpo. No piense en nada. Ponga la mente en blanco. Concéntrese el estudiante en su Dios Interno, comience a orar el Padre Nuestro demasiado lentamente, pensando en el sentido de cada petición, adormézcase hasta llegar al sueño profundo meditando en cada palabra, en cada frase, adorando... adorando... adorando...
+Cuando el estudiante despierte de su sueño, no se mueva... practique un ejercicio retrospectivo para recordar sus experiencias internas, dónde estuvo, por dónde pasó en cuerpo astral, que hizo, qué vio, etc., etc. Este ejercicio debe ser diariamente, sin cansarse jamás. Tendréis que llegar a ver y a oír las grandes realidades internas.

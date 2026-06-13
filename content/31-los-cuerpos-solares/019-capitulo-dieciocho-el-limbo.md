@@ -1,0 +1,39 @@
++++
+title = "Capítulo Dieciocho. El Limbo"
+weight = 19
+template = "chapter.html"
++++
+
+Amadísimos hermanos GNÓSTICOS: En esta NOCHE DE NAVIDAD 1967, quiero que sepáis que todas las cuevas conocidas y por conocer forman una vasta e ininterrumpida red que abarca por entero el planeta, constituyendo el ORCUS de los clásicos, el LIMBO de los Cristianos, el otro mundo, en fin, donde vivimos después de muertos.
+EL DANTE FLORENTINO el fiel discípulo de VIRGILIO ve al LIMBO en el primer circulo de los MUNDOS-INFIERNOS o MUNDOS INFERIORES. Ciertamente, podemos afirmar enfáticamente que el Limbo es la región de los muertos, el Mundo Molecular.
+En el Limbo jamás se escuchan las quejas y blasfemias de los condenados; en el Limbo sólo se oyen suspiros que proceden de la pena sin tormento de una inmensa multitud de hombres, mujeres y niños que no pudieron ingresar al Reino.
+Es urgente que sepáis amadísimos hermanos GNÓSTICOS, que las Almas del Limbo no pecaron y si pecaron se arrepintieron y hasta adquirieron en la vida muchos méritos y virtudes, belleza e inocencia, pero eso no fue suficiente para lograr la entrada al Reino, les faltó lo principal; les faltó el trabajo con las aguas espermáticas de la existencia, no conocieron el ARCANO A. Z. F., el SAHAJA MAITHUNA, la MAGIA SEXUAL y si alguien les habló de eso, lo rechazaron, creyendo que podrían ingresar al Reino sin el agua del Bautismo.
+Conviene aclarar de una vez y para siempre, mis caros hermanos, que el BAUTISMO simboliza en forma clara y especifica el trabajo sexual con el ENS SEMINIS dentro del cual se encuentra en estado potencial todo al ENS VIRTUTIS del Fuego.
+La Pila Bautismal conteniendo las AGUAS ESPERMÁTICAS del primer instante, es el SEXO, la Piedra Filosofal de los viejos ALKIMISTAS medioevales sobre la cual debemos edificar el TEMPLO INTERIOR.
+Pedro, el Gran Maestro del Sexo. dijo: "He aquí, pongo en Sión la principal PIEDRA del ángulo, escogida, preciosa; y el que creyere en ella, no será avergonzado".
+"Para vosotros, pues, los que creéis, él es precioso; pero para los que no creen, LA PIEDRA que los edificadores desecharon, ha venido a ser la cabeza del ángulo; PIEDRA de tropiezo y ROCA de escándalo".
+Quien quiera subir, debe primero bajar, esa es la Ley. Recordad que el SEXO es PIEDRA de tropiezo y ROCA de escándalo.
+Es urgente bajar a la NOVENA ESFERA (El Sexo), para trabajar con el AGUA y el FUEGO, origen de Mundos, Bestias, Hombres y Dioses, toda auténtica Iniciación Blanca comienza por allí.
+El descenso a la NOVENA ESFERA fue desde los antiguos tiempos la prueba máxima para la suprema dignidad del HIEROFANTE; JESÚS, HERMES, BUDDHA, MAHOMA, MOISÉS, EL SANTO LAMA, etc., tuvieron que pasar por esa terrible prueba.
+Es urgente fabricar los CUERPOS SOLARES en la FRAGUA ENCENDIDA DE VULCANO, porque al banquete del Señor está prohibido asistir con cuerpos Lunares, con trajes de mendigos.
+A la FRAGUA ENCENDIDA DE VULCANO, a la NOVENA ESFERA, bajan: MARTE, para retemplar la espada y conquistar el corazón de VENUS, HERMES, para limpiar los ESTABLOS de AUGIA con el fuego sagrado y PERSEO, para cortar la cabeza de la MEDUSA.
+En el Limbo encontró Dante a muchos niños inocentes. Patriarcas y Hombres Ilustres que jamás bajaron a la NOVENA ESFERA; por tal falta están condenados, consistiendo su pena en vivir con el deseo sin esperanza.
+En el LIMBO viven personas de mucho valor, cuyo único crimen es no haber fabricado sus CUERPOS SOLARES.
+En el LIMBO encontró Dante a poetas tan famosos como HOMERO y al satírico HORACIO y a OVIDIO el tercer y ultimo LUCANO.
+Y flotando en el limbo llegó el DANTE FLORENTINO al pie de un noble castillo rodeado siete veces de altas murallas y defendido alrededor por un bello riachuelo, y atravesó siete puertas hasta llegar a un prado de fresca verdura donde encontró austeros personajes de gran autoridad pero vestidos desgraciadamente con cuerpos lunares.
+En el Limbo encontró el Dante a Electra con muchos de sus compañeros, entre los que reconoció a Héctor y a Eneas. En el limbo encontró Dante a Camila y a Pentesilea y al buen Rey Latino que estaba sentado al lado de su hija Lavinia.
+En el Limbo vio Dante a Bruto que arrojó a Tarquino de Roma y a Lucrecia y vio también a Julia y a Marcia y a Cornelia y a Saladino que estaba solo y separado de los demás.
+Y encontró Dante en el Limbo a Sócrates y a Demetrio que pretende que el mundo ha tenido por origen la casualidad y a Diógenes y Anaxágoras y a Tales y a Empédocles, Heraclito y Zenón; todos ellos muy sabios pero vestidos con trajes de mendigos, con Cuerpos Lunares.
+Y encontró Dante en el Limbo a Dioscórides el observador de la cualidad y al moralista Séneca y al Geómetra Euclides y a Tolomeo y a muchos otros sabios varones de la Raza Lunar.
+En el Limbo viven muchos Justos Varones, que trabajaron por la humanidad y que disolvieron el YO pero que cometieron el error de no fabricar sus Cuerpos Solares.
+Uno se asombra al ver al Mahatma Ghandi vestido con Cuerpos Lunares y viviendo en el Limbo.
+En cierta ocasión después de haber verificado que el FUEGO SAGRADO no había ascendido jamás por la ESPINA DORSAL del Mahatma no tuve inconveniente en decirle: "TU ESTÁIS SIN REALIZAR". La respuesta fue: "NO TUVE TIEMPO PARA ESO". "Esa no es disculpa justa" fueron mis palabras finales.
+Ciertamente el Mahatma Ghandi habría podido fabricar sus Cuerpos Solares en la Fragua Encendida de Vulcano (EL SEXO), porque tuvo una magnifica esposa, pero cometió él error de abstenerse, creyó que renunciando al Sexo podría AUTO REALIZARSE, fue un Equivocado Sincero.
+En un Templo del Limbo encontré también a Yogananda vestido con Cuerpos Lunares, honradamente se creía AUTO-REALIZADO y cuando le hice ver su error, cuando le dije: Tú no estáis Auto-Realizado, se llenó de gran asombro y me quiso formar discusión, fue necesaria la intervención del Maestro Superior del templo para que comprendiera su situación.
+Jamás me pesará haberle advertido al Gran Yoguin, al noble YOGANANDA, el que tendrá que Reencarnarse para casarse y trabajar en la Novena Esfera, si es que quiere fabricar sus Cuerpos Solares para ingresar al Reino.
+En el Limbo viven millones de Santos ermitaños, sublimes Yoguines y nobles Místicos que sintieron asco por el SEXO y que creyeron inocentemente que se podría entrar al Reino con Cuerpos Lunares.
+El Limbo es la región de los Inocentes, de aquellos Místicos, Santos, Sabios, penitentes, que no conocieron el GRAN ARCANO, el MAITHUNA o que lo rechazaron porque muy honradamente creyeron que solo a base de Abstención Sexual, Pranayamas, Penitencias, Ejercicios Yoguicos, etc., podrían Auto Realizarse; Por algo dijo Pedro que el SEXO es PIEDRA de tropiezo y ROCA de escándalo.
+En el Limbo existen millares de Escuelas Pseudo-Esotéricas y PSEUDO-OCULTISTAS que imparten a sus afiliados sublimes lecciones que a nadie perjudican y que a todos benefician, pero que desgraciadamente jamás sirven para la AUTO-REALIZACIÓN ÍNTIMA, porque no enseñan el Evangelio de Pedro, el MAITHUNA.
+Solo MERCURIO el Mensajero de los Dioses, el Archímago, con el CADUCEO DE MERCURIO Símbolo de la espina dorsal en la que se enlazan las dos serpientes llamadas IDÁ Y PINGALÁ, podrá mediante el MAITHUNA evocar de nuevo a la vida a las infelices ALMAS precipitadas en el Limbo.
+Del LIMBO salió el Alma del primer Padre y la de Abel su hijo, y la de Noé, y la del Legislador Moisés y la del Patriarca Abraham y la del Rey David y la de Israel con su Padre y con sus hijos y la de Raquel. Todos estos se reencarnaron para trabajar en la Novena Esfera y FABRICAR sus CUERPOS SOLARES y lograr el NACIMIENTO SEGUNDO; ahora son ángeles de indescriptible esplendor.
+Uno se llena de asombro cuando platica con el Ángel Israel; en su Aura Solar, resuenan armoniosos todos los versículos sublimes del antiguo testamento.

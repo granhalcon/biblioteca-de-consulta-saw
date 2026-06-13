@@ -1,0 +1,18 @@
++++
+title = "Capítulo 107"
+weight = 108
+template = "chapter.html"
+
+[extra]
+part = "Tercer Libro de Pistis Sophia"
++++
+
+## Juan continúa su interrogatorio.
+Y cuando el Salvador hubo dicho esto, Juan continuó nuevamente diciendo: "*Mi Señor, ten paciencia de mí si te pregunto insistentemente y no te disgustes porque te interrogue de todas las cosas con seguridad y certeza para conocer la forma en que debemos proclamar tu enseñanza a la humanidad*".
+## De los pretendientes que reciben los misterios.
+Y el Salvador contestó diciéndole a Juan: "*Pregunta todas las cosas que desees que yo os las revelaré frente a frente, sin similitudes abiertamente y con seguridad*".
+Y Juan contestó diciendo: "*Mi Señor, si nosotros salimos proclamando tus enseñanzas y llegamos a una ciudad o una aldea, y los hombres de tal ciudad salen a encontrarnos sin que sepamos quiénes son, y nos admiten entre ellos con gran engaño y farsa y nos llevan a sus casas y deseando poner a prueba los misterios del Reino de la Luz y nos engañan haciéndonos suponer que anhelan las cosas de Dios y les damos los misterios del Reino de la Luz y más tarde nos percatamos que no tienen méritos para merecer los misterios y sabemos que nos han engañado y han hecho un espectáculo de los misterios región por región poniéndonos a prueba y también a nuestros misterios, ¿Qué acontecerá con tal cosa entonces?*".
+Y el Salvador contestó diciéndole a Juan: "*Si vosotros llegáis a una ciudad o aldea, en cualquier casa que entréis y os reciban, dadles un misterio. Si ellos lo merecen ganaréis sus almas y heredarán el Reino de la Luz; pero si ellos no lo merecen y os engañan y también hacen un espectáculo público de los misterios poniéndoos a prueba y también a los misterios, invocad entonces al Primer Misterio del Primer Misterio que tiene misericordia por cada uno y decid: Tú, Misterio el cual hemos otorgado a estas almas impías y perversas que no lo merecen, regresa hacia nosotros y hazlos desconocer para siempre el Misterio de tu Reino. Y sacudid el polvo de vuestros pies como testigo contra ellos, diciendo: Que vuestras almas sean como el polvo de vuestra casa. Y amén os digo: En ese momento todos los misterios que les habéis dado regresarán a vosotros y todas las palabras y misterios de la región hasta donde hayan recibido imágenes, les serán quitadas*".
+## Una antigua sentencia explicada.
+"*Con respecto a tales hombres os he dicho en otro tiempo similarmente: A la casa que entréis y seáis recibidos decidles: La paz sea con vosotros. Y si la merecen, dejad que vuestra paz sea con ellos, y si no la merecen, dejad que vuestra paz regrese a vosotros, es decir, si esos hombres merecen los misterios y en verdad anhelan las cosas de Dios, concededles los misterios del Reino de la Luz, pero si ellos son farsantes con vosotros y os engañan sin saberlo vosotros y si les concedéis los misterios del Reino de la Luz y después ellos hacen de los misterios un espectáculo público y os ponen a prueba como también a los misterios, ejerced entonces el Primer Misterio del Primer Misterio y éste regresará a vosotros todos los misterios que les habéis dado y a ellos los desconocerá de los misterios de la Luz para siempre*".
+"*Y tales hombres no serán conducidos de regreso al mundo desde ese momento en adelante. Más amén os digo, sus moradas estarán en medio de las fauces del dragón de las tinieblas exteriores. Y sí aún en el momento de arrepentirse renuncian al mundo y a las cosas que hay en él y a todos sus pecados y presentan entera sumisión a los misterios de la Luz, ningún misterio podrá escucharlos ni perdonarlos, excepto este mismo misterio del Inefable que tiene misericordia por todos perdona los pecados de cada uno*".

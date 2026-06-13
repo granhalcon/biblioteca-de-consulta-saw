@@ -1,0 +1,55 @@
++++
+title = "Introducción"
+weight = 3
+template = "chapter.html"
++++
+
+Hace algunos años llegó a estas tierras colombianas un personaje misterioso. El señor Israel Rojas R., levantó el dedo diciendo que aquel ser misterioso era el gran Avatar de Acuario, el Venerable Maestro de Sabiduría Kout Humi, hijo del rey Khan de Mongolia. Se decía que aquel ser misterioso era Gran Delegado de Agarta. Gran delegado de la Orden del Cisne en Europa. Gran iluminado "Budate" en la India, doctor en divinidad, jefe de los Caballeros Templarios de Oriente y Occidente en París. Jefe de la universidad espiritual de Dagerling –India–. Miembro de las principales sociedades científicas del mundo, etc. Es decir, aquel ser misterioso según el señor Rojas, era un auténtico Maestro de la Logia Blanca, un pozo de sabiduría y omnisciencia.
+
+Ese misterioso personaje decía llamarse "su alteza", el príncipe Omar Cherenzi Lind. Y dictó Cherenzi algunas conferencias en varias ciudades de Colombia. Pero he aquí que como un torrente que arrasa con todo lo que se encuentra a su paso, así sucedió con Cherenzi y su doctrina.
+
+Mas, pronto surgieron discrepancias y luchas personales entre Israel Rojas y Cherenzi; Allí hubo panfletos de lado a lado combatiéndose mutuamente los dos líderes espiritualistas, tachándose mutuamente con los adjetivos más degradantes y sucios.
+
+Yo estaba aun muy joven y no hacía otra cosa sino observar y callar, porque mis vehículos no estaban todavía listos para expresarme a través de ellos y me contentaba únicamente mirando los toros desde la valla. Mas, me avergüenzo todavía al recordar ciertas reuniones de rosacrucistas, que a mí no me importaban un comino. Todos hablaban, todos murmuraban, todos soltaban la lengua terriblemente, para barrer con ella el honor y la dignidad tanto de Cherenzi como la de Rojas. Allí no se respetaba el honor ni la vida privada de nadie; allí sólo se pensaba en hablar y hablar, todos como locos, sin acordarse para nada de la terrible responsabilidad del verbo. Parecían aquellos espiritualistas de Colombia como presos de una demencia extraña. Aquello era una vocinglería de loros hablando a diestra y siniestra. Hablaban de todo cuanto les venía a la cabeza, sin tener en cuenta para nada la responsabilidad Kármica del lenguaje. Yo solo me limitaba a escuchar porque me daba vergüenza tomar parte en esa clase de difamaciones personalistas.
+
+Mientras unos aseguraban que Cherenzi era el auténtico K.H., otros decían que eso no era así. Los teósofos por su parte aseguraban que Cherenzi era un estafador cubano. Allí no se respetaba el honor de nadie. Al fin se fue el rompecabezas de los espiritualistas de Colombia, dejando fundada la Universidad Espiritual de Colombia, con sus Centros Luminares y su Sanctums de meditación.
+
+Todos los ataques que se hicieron contra Cherenzi fueron de carácter absolutamente personales. Se habló contra su honor, contra su dignidad, se le trató con los calificativos de estafador, ladrón, etc., pero nadie en Colombia, absolutamente nadie, fue capaz de combatirlo doctrinariamente, porque en Colombia no había entonces elementos debidamente preparados para combatir a Cherenzi doctrinariamente.
+
+El espiritualista colombiano estaba totalmente ciego y sus líderes eran tan solo ciegos, guías de ciegos: seres llenos de orgullo y vanidad, elementos autoritarios y déspotas. No había elementos profundos en la mente, capaces de veras de combatirlo doctrinariamente. No había sino ignorantes y tontos, incapaces de hacer un análisis de aquella doctrina que se les presentaba, y optaban por el ataque personalista y el lenguaje soez para así disfrazar su ignorancia. Porque es una tremenda verdad: que el que no es capaz de dar razones da patadas.
+
+Yo me convencí entonces que las teorías no conducen al hombre a ninguna parte y que las escuelas de espiritualistas que para ese tiempo había en Colombia, eran solo jaulas de loros que a ninguna parte me conducirían.
+
+Desilusionado, pues, de esas escuelas de "sabihondos" me retiré al silencio y a la meditación, me consagré de lleno al desarrollo de mis propios poderes internos a fin de adquirir el conocimiento directo y librarme de tantas teorías y de tantos insultos autoritarios. Y, al fin de muchos y terribles esfuerzos tuve la dicha, la inmensa dicha de despertar sobre el altar de la Iniciación. Fue entonces cuando me vine a dar cuenta exacta de que yo, Aun Weor, no necesitaba para nada de aquellas escuelas porque yo había transitado en pasadas reencarnaciones por todos los Misterios Menores y en Egipto durante la dinastía del faraón Kefren, había llegado al grado de Hierofante de Misterios Menores.
+
+Me di cuenta que había necesidad de abrir las santas puertas de la Iglesia Gnóstica a la humanidad entera. Pero que también me tocaba mostrar el peligro a la humanidad. Comprendía que había que enseñarle a la pobre humanidad doliente a despertar el Kundalini, pero que también me tocaba mostrarle a la humanidad todos los peligros de la magia negra.
+
+Me di cuenta que Cherenzi es un terrible mago negro, que la doctrina que él predica es la doctrina de la magia negra. Pudo fundar en Colombia su Universidad Espiritual porque los pobres espiritualistas colombianos estaban totalmente ciegos. De inmediato me di cuenta que debía escribir un libro para ayudar a mis hermanos de Colombia y a la humanidad, un libro que le permitiera a cada ser humano encontrar la Iniciación en su propio hogar.
+
+Libre de autoritarismos, teorías confusas, cuotas y regaños de pseudo sapientes que desde todas las logias y aulas martirizan a sus educandos. Me di cuenta que había que combatir el cherenzismo para dar luz a la humanidad y con este libro ciertamente yo refuto la doctrina de Cherenzi. Yo no ataco a Cherenzi personalmente, yo lo que ataco es su doctrina funesta. Yo personalmente nada tengo que ver con Cherenzi y no me interesa saber su vida privada ni pública; lo que ataco es su doctrina o la que él enseña y al atacar su doctrina, lo hago de un modo ilustrativo para la humanidad, llevándola hacia la luz, así podrá ver el abismo y evitar que caiga en él. Así pues, si yo le entrego a la humanidad el secreto del Kundalini, debo también mostrarle el peligro. Yo estoy absolutamente convencido que el que enseña magia blanca debe también mostrarle a la humanidad el peligro de la magia negra y como evitar caer en ella.
+
+Israel Rojas le hizo un gran daño a Colombia por haber presentado a Cherenzi como el auténtico Maestro de sabiduría K.H. Él ha debido examinar internamente a Cherenzi, interiormente antes de presentarlo como tal. Ningún trabajo cuesta a un simple Chela sacar el Intimo de una persona por el sistema central y observarlo. Sacar el yo animal o Satán y examinarlo y sacar el Astral y observarlo. Si Rojas hubiera hecho esto con Cherenzi se habría evitado tan grave error. El señor Rojas hubiera podido hacer esto porque él es un hermano de quinta Iniciación de Misterios Menores. Yo como Iniciado de novena Iniciación de Menores sé que eso es así.
+
+Así, querido lector, en este libro le enseño a la humanidad el camino de todas las conquistas y la llave de todos los poderes, pero también le muestro el abismo para que no caiga en él. Este libro está sólidamente fundado en mis observaciones clarividentes y ha sido autorizado por los Maestros de la Logia Blanca de quien he recibido estas enseñanzas. A los Maestros debo todo. Sí mi querido lector, lo que escribo aquí para bien de la humanidad se lo debo todo a los Maestros. Yo, Aun Weor, soy solamente un mediador entre la humanidad y la Logia Blanca, y las enseñanzas que yo entrego a la humanidad yo las he recibido de la Logia Blanca. Es la primera vez en la historia de nuestra vida que se escribe un libro con esta clase de enseñanzas. Pero ya llegó el tiempo en que debían darse estas enseñanzas y a mí me ha tocado dar estos conocimientos a la humanidad porque ya se acerca la edad de Acuario, así que, el que quiera despertar el Kundalini y unirse con el Intimo, que estudie este libro y vívalo. Yo me cansé de regaños y conferencias en las logias y nada conseguí con eso.
+
+Los sacerdotes católicos me insultaron mucho y nada saqué con sus amonestaciones que solamente me obscurecieron y llenaron de lágrimas los bellos años de mi infancia.
+
+Los teosofistas me calificaron de "mago negro" cuando hastiado de tantas teorías, conferencias y autoritarismos les pedí que me enseñaran cómo despertar mis poderes internos.
+
+Krishnamurti con sus enseñanzas me llegó a seducir, porque sentí que me sacaba de todas esas "jaulas", pero ya en la práctica me di cuenta de que sus enseñanzas hacían de mí un ente negativo, lleno de negaciones y más negaciones que a nada me conducían.
+
+Practiqué la "Yoga" hasta la extenuación y las prácticas yogas solamente consiguieron debilitar mi organismo y dañar mi salud.
+
+Al fin cansado de todo vino a mí la Luz, y me di cuenta de que la redención del hombre radica exclusivamente en el acto sexual. Al fin vine a darme cuenta que sólo las enseñanzas secretas del Divino Redentor del mundo encerradas en el augusto santuario de la Santa Iglesia Gnóstica, eran las únicas que podían consolar mi adolorido corazón.
+
+¡Cristo es la Luz del mundo! Y por ello él dijo: "El que cree en mí nunca andará en tinieblas" y yo creí en Cristo y me vino la luz. La Santa Iglesia Gnóstica es la depositaria fiel de todas las enseñanzas secretas del Maestro. Y ella fue la única que pudo colmar mis ansias de luz y en este libro que hoy ofrezco a la humanidad doliente, entrego las llaves de la Iniciación a todos los seres, sin distinción de sexo, raza, casta y color.
+
+Y así, todos los seres humanos podrán llegar hasta el altar de la "Iniciación", lejos de tantos autoritarismos, cuotas, conferencias y regaños. Pues no hay mejor escuela que el sagrado santuario del hogar, ni mejor sacerdote que el "Amor".
+
+Después de meterme un millón de teorías en la cabeza llegué a la conclusión de que yo había perdido el tiempo miserablemente, porque la Iniciación no es cuestión de teorías ni de autoritarismos, ni de leer libros.
+
+La Iniciación es únicamente cuestión de sacar el maximum de provecho de la médula y del semen y para esto el único camino es "querer" intensamente a la mujer –esposa–. Uno no tiene más manera de salvación sino unirse con el "Intimo" y para conseguirlo es la mujer adorada el único remedio. Lo importante es despertar el Kundalini, pues, en el Kundalini está la salvación. Así pues, en este libro doy el secreto para despertar el Kundalini y unirse con el "Intimo". En este libro le entrego al ser humano el secreto del Amor y del paraíso.
+
+Yo le aconsejo al lector que no lea más libros, porque con este sólo libro tiene para llegar a la alta Iniciación y lograr la suprema felicidad.
+
+Hay que ser "prácticos". Las teorías no hacen sino dañarle al hombre sus poderes internos y el cerebro. El intelecto es luciférico y demoníaco y causa grandes daños al hombre. Así pues, el que se entregue de lleno a las prácticas de este libro, yo, AUN WEOR, le aseguro que se convertirá en un DIOS omnipotente. Lo juro.

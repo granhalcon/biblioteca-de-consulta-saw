@@ -1,0 +1,22 @@
++++
+title = "Capítulo 23. Gaio"
+weight = 25
+template = "chapter.html"
+
+[extra]
+part = "Primera Parte"
++++
+
+Escuchad hombres y Mujeres que os adoráis, cuando estéis unidos sexualmente vocalizad los mantram: **DIS, DAS, DOS.** Alargad el sonido de cada letra, prolongad lo más posible el sonido, así hijos míos despertareis vuestra serpiente sagrada. Conforme aumentan los besos y las caricias durante el trance sexual, os vais cargando del fuego elemental y de la electricidad que bulle y palpita en todo lo creado. Mujeres refrenad vuestro acto sexual y así despertaréis el Kundalini.
+
+Varones refrenad el impulso sexual y así despertaréis vuestra serpiente emplumada Quetzalcoatl. Si os retiráis antes del espasmo, si no derramáis vuestro semen, despertará el fuego sagrado en vosotros, os convertiréis en Dioses. Angosta es la puerta y estrecho el camino que conduce a la LUZ y muy pocos son los que lo hallan. Los tenebrosos dicen que por muchos caminos se llega a Dios; nuestro Señor el CRISTO sólo nos dijo que había una puerta estrecha y un camino angosto. "Entrad por la puerta estrecha: porque ancha es la puerta y espacioso el camino que lleva a perdición, y muchos son los que entran por ella". "Porque estrecha es la puerta y angosto el camino que lleva a la vida; y pocos son los que la hallan". Por esa puerta estrecha salimos del Edem y por esa puerta tenemos que entrar al Edem. Esa puerta estrecha es el sexo; por donde salimos tenemos que entrar. El Edem es el mismo sexo; al Edem no podemos entrar por puertas falsas. Empero hermanos míos, "Guardaos de los falsos profetas que vienen a vosotros con vestidos de ovejas mas por dentro son lobos rapaces". "Por sus frutos los conoceréis, o ¿cójanse uvas de los espinos, o higos de los abrojos?". ¿Pueden ser buenos los frutos de aquel que ni entra al Edem ni deja entrar a los demás?
+
+Los tenebrosos aconsejan la eyaculación seminal, dicen que la magia sexual es peligrosa, y exigen mil condiciones para tener derecho a practicar magia sexual. Los tenebrosos cierran las puertas del sexo a la pobre humanidad doliente y luego con millares de argucias meten a las pobres almas en las jaulas de sus sistemas intelectuales, ese es el crimen de los luciferes. "Todo árbol que no lleva buen fruto córtese y échese al fuego". Así que por sus frutos los conoceréis. ¡Ay de vosotros, escribas y fariseos, hipócritas!, Porque cerráis el reino de los Cielos delante de los hombres; que ni vosotros entráis, ni a los que están entrando dejáis entrar. "Ay de vosotros escribas y fariseos hipócritas porque rodeáis el mar y la tierra por hacer un prosélito; y cuando fuere hecho, le hacéis hijo del infierno doble más que vosotros". Cuidaos hermanos de mi alma "por que vendrán muchos en mi nombre diciendo; Yo soy el cristo; y a muchos engañaran". Esos tenebrosos se dejan crecer el cabello y la barba, fundan sociedades espiritualistas y dicen: yo soy el Cristo. Así hermanos míos, "Muchos falsos profetas se levantaran y engañarán a muchos". Los tenebrosos os cerrarán la puerta del sexo con teorías y más teorías.
+
+Nosotros los hermanos de la Logia Blanca aconsejamos estudiar las 7 Iglesias del Apocalipsis de San Juan, allí encontrareis las únicas condiciones que se necesitan para abrir las 7 Iglesias de nuestra columna espinal con el fuego bendito del sexo.
+
+Todo está escrito en la Biblia, no os dejéis engañar por las chispeantes Intelectualidades de los luciferes. Nosotros hemos estregado en este libro el secreto terrible de la Magia Sexual, para que os transforméis en Dioses. Realmente este libro lo hemos entregado con inmenso sacrificio, sin embargo estamos absolutamente seguros de que la recompensa de la humanidad será la ingratitud. Los bribones estudiarán este libro no para aprender sino para criticarnos, calumniarnos, perseguirnos, deslucirnos y desacreditarnos.
+
+Las lenguas viperinas de las devotas propagarán contra todos los verdaderos hermanos mayores distintos chismes y especies difamantes, este es el pago que nosotros recibimos de la pobre humanidad doliente. Todos nosotros juramos en nombre del eterno Dios viviente que no hay otro camino de redención. Todo aquel que diga, que hay otros caminos que conducen a la liberación, miente; ese tal es luciférico y demoníaco, o por lo menos un sincero equivocado.
+
+YO SOY el camino, la verdad y la vida. YO SOY el verbo sagrado del Edem. El Edem es el mismo sexo; por esa puerta salimos y por esa puerta tenemos que entrar, esa es la Ley.

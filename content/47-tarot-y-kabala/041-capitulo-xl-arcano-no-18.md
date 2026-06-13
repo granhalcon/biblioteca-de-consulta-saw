@@ -1,0 +1,42 @@
++++
+title = "Capítulo XL. Arcano Nº 18"
+weight = 41
+template = "chapter.html"
+
+[extra]
+part = "Segunda Parte: la Iniciación a Través de los Arcanos del Tarot"
++++
+
+El Arcano 18 sumado kabalísticamente es 1 + 8 = 9, LA NOVENA ESFERA, el Sexo. Las tradiciones esotéricas afirman, que la Tierra tiene 9 estratos o REGIONES SUBTERRÁNEAS, es claro que en el Noveno Estrato está eso que le podemos llamar Núcleo Planetario que es de una densidad extraordinaria. Dicen los kabalistas que en el centro de la Tierra está el signo del Infinito; es obvio que dentro del corazón de la Tierra circulen sus Energías Vitales.
+Es por tal motivo que los kabalistas afirman que en el centro de la Tierra se encuentra el Cerebro, Corazón Y Sexo del Genio de la Tierra, es decir, el Genio Planetario. Sobre ese modelo están construidas todas las organizaciones de las criaturas, es decir, dentro de nosotros mismos.
+La lucha es terrible, cerebro contra sexo, sexo contra cerebro y lo que es peor, CORAZÓN CONTRA CORAZÓN.
+El PENTAGRAMA con el vértice hacia arriba es el Hombre; si el Sexo gana la batalla, entonces el Pentagrama se Invierte con el vértice hacia abajo; originando la caída de la Torre Fulminada del Arcano 16.
+En el Sexo está la mayor fuerza que puede LIBERAR O ESCLAVIZAR AL HOMBRE. El descenso a la Novena Esfera, fue desde los antiguos tiempos la PRUEBA MÁXIMA PARA LA SUPREMA DIGNIDAD DEL HIEROFANTE. Todos los tratados hablan del descenso de Eneas a la Novena Esfera, al Tartarus Griego (Libro VI). La Sibila de Cumas, le advirtió lo que significa el descenso al Averno: "Descendientes de la sangre de los Dioses, troyano, hijo de Anquises, Fácil es la bajada al Averno; día y noche está abierta la puerta del negro Dite; pero retroceder y restituirse a las auras de la tierra, esto es lo arduo. Esto es lo difícil; pocos, y del linaje de los Dioses, a quienes fue Júpiter propicio o a quienes una ardiente virtud remontó a los astros, pudieron lograrlo".
+Los Kabalistas hablan del Adam Protoplastos, que mediante la Transmutación de las Energías Creadoras se convierte en algo distinto, diferente. Las tradiciones kabalistas nos cuentan que Adán tenía dos esposas, Lilit y Nahemah; se dice que la primera es la madre de los abortos, homosexualismos, de la degeneración sexual, y la segunda es la madre de los adúlteros, fornicarios, etc.
+LILIT Y NAHEMAH son los dos aspectos de la INFRA-SEXUALIDAD, esas dos mujeres corresponden a dos Esferas Infra-dimensionales, minerales, sumergidas, dentro del mismo interior del planeta Tierra.
+En todo caso el Tartarus Griego, el Averno, son símbolos del Reino Mineral sumergido. Existe vida en todo, en el Elemento Aire vivimos nosotros y dicho elemento es invisible para nosotros, así como para los peces el agua tampoco la ven; puedo asegurarles que en la piedra hay vida, existen seres vivientes y tal elemento es invisible para ellos, no son seres de carne y hueso, son sutiles, elementos perdidos, degenerados, que están en vías de involución.
+Eneas encontró a su Padre, a la Bella Helena. Dante en su "Divina Comedia", encontró a multitudes de seres; los 9 Círculos del Dante tiene relación con las Nueve Esferas en el Elemento Mineral Sumergido.
+Se hace necesario descender a nuestros propios Infiernos Atómicos para trabajar con el Fuego y el Agua, origen de mundos, bestias y hombres. En todas las escuelas Pseudo-Ocultistas se habla de subir, ascender a los Mundos Superiores, pero a nadie se le ocurre bajar, y lo grave es que a toda exaltación le corresponde una humillación.
+En la Esfera Sumergida de Lilit encontramos a las que gustan de abortar y las gentes que usan píldoras, que no quieren tener hijos y el resultado es obvio. En la Esfera de Nahemah encontramos a los que se fascinan por el Sexo, hombres terriblemente fornicarios, mujeres entregadas al adulterio, orgullo, vanidad, que se divorcian y se vuelven a casar. Tradiciones Kabalísticas dicen que cuando un hombre abandona a su esposa para casarse con otra, queda marcado en la frente, con un Fuego Luciférico. Afirman los kabalistas que cuando una mujer se casa con un hombre que no le corresponde, el día de la boda ella aparece "Calva" e inconscientemente se tapa demasiado la cabeza.
+"SIN TRANSMUTACIÓN NADIE SE PUEDE AUTO-REALIZAR".
+La Novena Esfera se repite dos veces en el Arcano 18, esto deja mucho que pensar, el primer nueve es positivo, y el segundo nueve es negativo, entonces el Arcano 18 manifiesta el aspecto fatal o negativo de la Novena Esfera. Dicho aspecto está en las Esferas de Lilit y Nahemah.
+Es obvio que los Mundos Infiernos son infrasexuales, es evidente que la infra-sexualidad reina soberana entre la humanidad; se reparten unos en la Esfera de Lilit y otros en la de Nahemah.
+Cuando uno intenta trabajar en la Novena Esfera, inmediatamente es atacado por los Demonios Rojos, éstos trabajan para desviarnos de la senda del Filo de la Navaja. Es claro que en el Magisterio del Fuego existen muchos peligros, por dentro y por fuera.
+Cuando la Serpiente ÍGNEA O KUNDALINI asciende por la Espina Dorsal, el avance es lento, se realiza de vértebra en vértebra muy lentamente. Cada vértebra representa determinadas Virtudes, corresponden a un Grado esotérico. Jamás se logra el ascenso a determinada vértebra sin haber llenado las condiciones de Santidad requeridas por la vértebra a la cual se aspira. Las "33" Vértebras corresponden a los "33" Grados de la Magia Oculta, los 33 Grados del Maestro Masón, a los 33 años de Jesús y a cada vértebra le corresponden pruebas y el ascenso se realiza "de acuerdo con los méritos del corazón". Aquellos que creen que el Kundalini una vez despertado sube instantáneamente a la cabeza, para dejarnos totalmente iluminados, son gentes realmente ignorantes.
+El Fuego Sagrado tiene Siete Grados de Poder; hay que desarrollarlos para poder Auto-Realizarse.
+En esta presente reencarnación cuando luchaba con el Cuarto Grado de Poder del Fuego y aún no había disuelto el Ego, vi en la pantalla de un cine a una pareja de tipo erótico; y por la noche en el mundo de la Mente fui sometido a una prueba, en la que la pareja de la pantalla hacía la misma escena, dicha escena era reproducida por mi Mente, parecía tener vida, moverse, salí de la prueba. Cuando dejé el Mundo de la Mente y pasé al Astral fui duramente recriminado y se me advirtió que si volvía a esos lugares (los cines) perdería la Espada, que mejor estudiara mis vidas pasadas, en los Registros Akhásicos.
+LA ATMÓSFERA DE LOS CINES ES TENEBROSA, HAY MILLONES DE LARVAS CREADAS POR LAS MENTES DE LOS ASISTENTES, y luego vienen por la noche las poluciones nocturnas. Este es el Arcano "18", es las Tinieblas.
+En la Divina Comedia se habla del perro Cerbero que es el Sexo que hay que Sacarlo del Tartarus al "Sol". Esto es la Ascensión de las Fuerzas Sexuales en nosotros, que hay que hacerlas subir y eliminar al Yo. Esto es básico para la Auto-Realización Íntima del Ser. Es la lucha entre la Luz y las Tinieblas en el Arcano 18.
+Esta lucha terrible se afirma, en las 3 escuelas Tántricas que se dedican al Sexo.
+1\. TANTRISMO BLANCO. Conexión del Lingam-Yoni sin eyaculación del Ens Seminis. Nos lleva al ascenso del Kundalini y a la AUTO-REALIZACIÓN.
+2\. TANTRISMO NEGRO. Existe eyaculación del Ens Seminis durante el Maithuna para desarrollar el ÓRGANO KUNDARTIGUADOR.
+3\. TANTRISMO GRIS. Trabajar a veces con la eyaculación y a veces no, trabajando únicamente por el goce del placer sexual, pero con el peligro inminente de caer en el TANTRISMO NEGRO.
+De manera que al llegar al Arcano 18 nos encontramos ante el dilema del Ser o no Ser.
+NADIE SE AUTO-REALIZA SIN LA PRÁCTICA DEL MAITHUNA. SE TIENE QUE DESPERTAR CONCIENCIA PORQUE SIN ELLA SE ABANDONA EL CAMINO, PUES NO TIENE SERIEDAD.
+ANTES EL SECRETO DEL ARCANO A.Z.F. NO SE LO DABAN A NADIE QUE NO HUBIERA DESPERTADO CONCIENCIA PARA QUE NO ABANDONARA EL CAMINO.
+SÍNTESIS:
+EL QUE DERROTA AL SATÁN EN EL SEXO, LO DERROTA EN TODOS LOS ASPECTOS.
+Sacar al Perro Cerbero significa liberar la Energía Sexual, utilizarla en forma trascendente.
+Los ojos son las ventanas del Alma. El Hombre que se deja prender por los ojos de todas las mujeres, tendrá que resignarse a vivir entre el Abismo.
+Hay mujeres que trabajan a los hombres con brujerías. Esas víctimas deben defenderse incesantemente con las conjuraciones de los Cuatro y de los Siete.
+Nosotros podemos defendernos de la brujería invocando a nuestro INTERCESOR ELEMENTAL. Se le llama con todo el corazón a tiempo de acostarnos.

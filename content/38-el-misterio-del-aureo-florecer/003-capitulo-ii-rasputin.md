@@ -1,0 +1,44 @@
++++
+title = "Capítulo II. Rasputín"
+weight = 3
+template = "chapter.html"
++++
+
+Quiero enfatizar la idea básica que debemos formular así: “Los grandes fascinadores de la lubricidad y de la impudicia pertenecen más bien al tipo Casanova que al famoso Don Juan Tenorio”.
+Si el taimado tipo Don Juan refleja todas sus aventuras amorosas en el maligno espejo egocéntrico de su fantasía refinada, con la abominable intención de rebajar a la mujer, de profanarla vilmente, de violarla y difamarla perversamente mediante la cópula pasional única y sin repetición en el “empujón del pecado”, resulta incontrovertible una especial modalidad de odio masculino contra la hembra.
+Por ley de contrastes en el tipo Casanova predomina el deseo libidinoso de fascinación sexual, basado exclusivamente en los impulsos instintivos naturales y sentimentales. Desafortunadamente esta clase de sujetos son insaciables y sufren y hacen sufrir.
+El tipo Casanova es una especie de “maestro burlador” de la mujer; parece tener el don de la ubicuidad pues se le ve por todas partes, aquí, allá y acullá; es como el marino que en cada puerto tiene una novia; muchas veces se compromete y jura amor eterno.
+En contraposición del sadismo sexual refinado del tipo Don Juan, descubrimos en el tipo Casanova al Homúnculo racional que quiere ahogar en lechos de placer el tedio insoportable de su propia existencia.
+Otra variedad, afortunadamente poco común del fascinador de mujeres, conviene que la designemos como “tipo diablo”.
+Uno de los más genuinos representantes de este siniestro tipo, fue sin duda alguna el Monje Gregor Rasputín: Extraño asceta apasionado por el más allá; especie de hipnotizador rústico en hábito religioso.
+A todas luces resalta con entera claridad meridiana que la despótica fuerza mágica del “Diablo Sagrado” Rasputín, se debía exclusivamente a su tremenda potencia sexual.
+El Zar y la Zarina se arrodillaban ante él; creían ver en ese monje fatal un Santo viviente.
+Es obvio que Rasputín encontró el ánimo de los Zares muy dispuesto, gracias al Mago francés Papus (Dr. Encause) médico de cabecera de los soberanos.
+Waldemar dice: “De lo más instructivas son las memorias diplomáticas del antiguo embajador francés en San Petersburgo, Mauricio Paléologue, publicadas por la Revue des Deux Mondes”.
+“El Embajador describe una invocación de espíritus efectuada por el conspicuo ocultista francés Papus (Dr. Encause), y por cierto según expreso deseo de los Zares. La causa de la tal sesión fueron los disturbios revolucionarios de 1905; Papus había de conjurar la revuelta mediante un gran exorcismo en presencia del Zar, la Zarina y el ayudante capitán Mandryka”.
+“Paléologue, como garante de Papus, con quien tenía relaciones amistosas informa”:
+“Mediante una intensa concentración de su voluntad y un extraordinario acrecentamiento de su dinamismo fluido, el Mago logró evocar la sombra del muy pío Zar Alejandro III: Señales indudables probaron la presencia del espíritu invisible”...
+“A pesar de la angustia que le oprimía el corazón, Nicolás II preguntó de todos modos a su padre si debía reaccionar o no contra la corriente liberal que amenazaba con barrer a Rusia. El fantasma respondió: “Debes extirpar, cueste lo que cueste, la incipiente revolución. Más un día volverá a brotar de nuevo y será más violenta cuanto más dura sea la actual represión. ¡No importa! ¡Animo, hijo mío! ¡No ceses de luchar!”.
+Waldemar el sabio dice: “El Zar como notorio creyente en los espíritus, debía, pues, prestar gran interés a un hombre que como Rasputín venía precedido de gran fama como curandero milagroso”.
+“El Monje campesino procedía también de la categoría, tan extendida en la Rusia de la época, de los llamados magos de aldea, poseyendo un magnetismo vital tan extraordinario, debido a su insólita potencia sexual, que debió producir el efecto de una fuerza primitiva irrumpiendo en los círculos de la nobleza Petersburguesa, en parte ya degenerada”.
+“Una de sus primeras proezas en la corte fue tratar magnéticamente al heredero del trono, enfermo de hemofilia, logrando contener sus hemorragias, cosa que los médicos no habían conseguido”.
+Continúa el Sabio Waldemar diciendo: “Desde ese instante temblaron ante él grandes Duques, Ministros y toda la camarilla de la nobleza, pues la circunstancia de que tuviera en sus manos la vida del ZAREVITZ le granjeó la ilimitada confianza del Zar y la Zarina. Y esta confianza la supo utilizar en su provecho muy cabalmente; gobernó a su antojo a los Zares, y por ende a Rusia”.
+“Al aumentar constantemente su poderío, un grupo de adversarios de elevada alcurnia y posición, a cuya cabeza se hallaban el príncipe Yussupov y el gran Duque Pavlovitsch, decidió suprimir al importuno "Monje milagroso"”.
+“Y así, en una cena en el palacio del príncipe citado, le fueron servidos al monje invitado manjares y bebidas emponzoñados con Cianuro de Potasio, en dosis tan fuerte, que hubiera bastado para matar a una veintena de hombres o más en unos segundos. Pero Rasputín comió y bebió con creciente apetito; el veneno no parecía surtir efecto alguno sobré él”.
+“Los conjurados se inquietaron, pero siguieron animando al odiado a que comiese y bebiese más. Ni por esas; el veneno no tenía poder ninguno sobre el Monje milagroso; por el contrario, cada vez parecía sentirse más a sus anchas el maldito”.
+“En consecuencia, los conjurados acordaron que Yussupov le matara con una pistola; disparó, pues, el príncipe, desplomóse de bruces en el suelo Rasputín, y los conjurados le dieron ya por muerto”.
+“Yussupov, que había alcanzado en el pecho al Monje, se dispuso a dar vuelta a la cara del caído, pero ante su espanto, Rasputín le dió un empellón, se puso en pie y con pesados pasos intentó escapar de la habitación. Entonces el conjurado Purischkjewitsch hizo cuatro disparos contra el Monje, quien volvió de nuevo a desplomarse, alzóse otra vez, siendo ahora golpeado a bastonazos y patadas por el furioso Purischkjewitsch, hasta que pareció definitivamente rematado. Pero la vitalidad de Rasputín era tal, que aún dio señales de vida cuando los conjurados metieron su fornido cuerpo en un saco, el cual ataron, arrojándolo luego desde un puente entre los témpanos del Neva”.
+Este fue el final trágico de un hombre que hubiera podido AUTO-REALIZARSE a fondo.
+Desafortunadamente el Monje Gregor Rasputín no supo utilizar sabiamente la formidable potencia sexual de que lo dotara la naturaleza y descendió al plano de la más baja sensualidad.
+Una noche cualquiera me propuse investigar en forma directa al desencarnado Rasputín.
+Como quiera que conozco a fondo todas las funciones psíquicas del EIDOLÓN, (Cuerpo Astral) del hombre auténtico, no me fue difícil realizar un desdoblamiento mágico.
+Vestido pues, con ese cuerpo sideral del que tanto hablara Felipe Teofastro, Bombasto de Honheneim (Aureola Paracelso), abandoné mi cuerpo físico para moverme libremente en la Quinta Dimensión de la naturaleza; en el mundo astral.
+Lo que vi con el sentido espacial (con el Ojo de Horus) fue terrible. No está de más afirmar enfáticamente, que hube de penetrar en una taberna espantosa donde solamente se veían barriles llenos de vino por entre los cuales se deslizaban aquí, allá y acullá, multitud de horripilantes criaturas a semejanza de hombres.
+Yo buscaba a Rasputín, el Diablo sagrado, quería platicar con ese extraño monje ante el cual temblaron tantos príncipes, Condes, Duques y Marqueses de La nobleza Rusa: Más he aquí que en vez de un YO veía a muchos Yoes y todos ellos constituían el mismo EGO del monje Gregor Rasputín.
+Tenía pues ante mi vista espiritual en toda la presencia de mi ser cósmico, a un montón de Diablos; a un YO PLURALIZADO dentro del cual sólo existía un elemento digno; quiero referirme a la Esencia.
+No hallando pues un sujeto responsable, me dirigí a una de esas abominables criaturas grotescas que pisó cerca de mí: “He aquí el lugar a donde viniste a dar, Rasputín. Este fue el resultado de tu vida desordenada y de tantas orgías y vicios”.
+“Te equivocas Samael”, —contestó la monstruosa figura, como defendiéndose o justificando su vida sensual—, y luego añadió: “A tí te hace falta la línea de la intuición”.
+—“A mí no puedes engañarme Rasputín”; fueron mis últimas palabras; luego me retiré de aquel tenebroso antro situado en el LIMBUS, en el ORCO de los clásicos; en el vestíbulo del reino mineral sumergido.
+Si Rasputín no hubiera Hecho en vida tantas obras de caridad, a estas horas estaría involucionando en el tiempo dentro de los mundos sumergidos, bajo la corteza de la Tierra, en la morada de Plutón.
+Han pasado muchos años y yo sigo meditando: Los seres humanos todavía no tienen una individualidad auténtica; lo único que continúa después de la muerte es un montón de Diablos.
+¡Qué horror! Yoes-Diablos... cada uno de nuestros defectos psicológicos está representado por alguna de esas abominables criaturas Dantescas...
