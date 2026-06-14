@@ -1,18 +1,18 @@
 # Sitio
-base_url = "https://granhalcon.github.io/circulo-solar/biblioteca-de-consulta-saw/"
-title = "Biblioteca de consulta de Samael Aun Weor"
+base_url = "https://circulo.pages.dev/biblioteca-de-consulta-saw"
+title = "Biblioteca de consulta de los libros escritos por el V.M. Samael Aun Weor"
 description = "Libros de Samael Aun Weor organizados para su lectura y consulta."
 default_language = "es"
 author = "Samael Aun Weor"
 
-# Compilacion
+# Compilación
 output_dir = "public"
 compile_sass = true
-minify_html = false
+minify_html = true
 hard_link_static = false
 preserve_dotfiles_in_output = false
 
-# Indices y archivos generados
+# Índices y archivos generados
 build_search_index = true
 generate_sitemap = true
 generate_robots_txt = true
@@ -28,7 +28,6 @@ bottom_footnotes = true
 github_alerts = false
 insert_anchor_links = "right"
 lazy_async_image = true
-
 external_links_class = "external-link"
 external_links_target_blank = false
 external_links_no_follow = false
@@ -66,24 +65,24 @@ footer_description = "Biblioteca digital de las obras de Samael Aun Weor."
 footer_author = "Gran Halcón"
 copyright_year = 2026
 navigation = [
-  { name = "Círculo", url = "https://granhalcon.github.io/circulo-solar/" },
-  { name = "Círculo de Iniciación", url = "https://granhalcon.github.io/circulo-solar/circulo-de-iniciacion/" },
-  { name = "Biblioteca", url = "https://granhalcon.github.io/circulo-solar/biblioteca-de-consulta-saw/", active = true },
-  { name = "Quinto Evangelio", url = "https://granhalcon.github.io/quinto-evangelio/" },
-  { name = "Primeras Letras", url = "https://granhalcon.github.io/circulo-solar/primeras-letras/" },
-  { name = "Pintas Ayahuasqueras", url = "https://granhalcon.github.io/circulo-solar/pintas-ayahuasqueras/" },
-  { name = "Círculos de Medicina", url = "https://granhalcon.github.io/circulo-solar/circulos-de-medicina/" },
+  { name = "Círculo", url = "https://circulo.pages.dev/" },
+  { name = "Círculo de Iniciación", url = "https://circulo.pages.dev/circulo-de-iniciacion/" },
+  { name = "Biblioteca", url = "https://circulo.pages.dev/biblioteca-de-consulta-saw/", active = true },
+  { name = "Quinto Evangelio", url = "https://circulo.pages.dev/quinto-evangelio/" },
+  { name = "Primeras Letras", url = "https://circulo.pages.dev/primeras-letras/" },
+  { name = "Pintas Ayahuasqueras", url = "https://circulo.pages.dev/pintas-ayahuasqueras/" },
+  { name = "Círculos de Medicina", url = "https://circulo.pages.dev/circulos-de-medicina/" },
 ]
 
 [extra.site]
 name = "Biblioteca de consulta de Samael Aun Weor"
 short_name = "Biblioteca"
 locale = "es_MX"
-canonical_url = "https://granhalcon.github.io/circulo-solar/biblioteca-de-consulta-saw/"
+canonical_url = "https://circulo.pages.dev/biblioteca-de-consulta-saw/"
 
 [extra.publisher]
 name = "Círculo de Cultura Gnóstica y Medicinas Ancestrales"
-url = "https://granhalcon.github.io/circulo-solar/"
+url = "https://circulo.pages.dev/"
 
 [extra.publication]
 title = "Biblioteca de consulta de Samael Aun Weor"
