@@ -1,5 +1,6 @@
 # Sitio
 base_url = "https://circulo.pages.dev/biblioteca-de-consulta-saw"
+theme = "enso"
 title = "Biblioteca de consulta de los libros escritos por el V.M. Samael Aun Weor"
 description = "Libros de Samael Aun Weor organizados para su lectura y consulta."
 default_language = "es"
